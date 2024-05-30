@@ -1,1 +1,1 @@
-# TEDE_Project_1_2023-24
+# TEDE_Projects_2023-24
